@@ -1,4 +1,4 @@
-# 🚀 Remnawave Bedolaga Bot
+# 🚀 МОЙ НАХУЙБОТ 
 
 <div align="center">
 
